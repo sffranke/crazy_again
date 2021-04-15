@@ -20,4 +20,4 @@ Seitenteile: 4 x 1000 x 280 mm²
 Front- & Rückwände: 4 x 1000 x 148 mm²  
 Decke & Böden: 4 x 148 x 248 mm²  
 Teiler: 2 x 148 x 248 mm²  
-Kreuz: 1 x 148 x 248 mm²  
+Kreuz: 2 x 148 x 248 mm²  
