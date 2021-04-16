@@ -21,3 +21,12 @@ Front- & Rückwände: 4 x 1000 x 148 mm²
 Decke & Böden: 4 x 148 x 248 mm²  
 Teiler: 2 x 148 x 248 mm²  
 Kreuz: 2 x 148 x 248 mm²  
+Summe: 30 €
+
+Bassreflexrohre: 16,48 €
+
+Anschlussport: 9 €  
+Bananenstecker:  
+Weichen: 
+
+
