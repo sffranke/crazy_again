@@ -31,7 +31,7 @@ Kreuz: 2 x 148 x 248 mm²
 Bassreflexrohre: 17 €
 
 Anschlussport: 9 €  
-Bananenstecker: 8 €
+Bananenstecker: 8 €  
 Weichen: 85 €  
 
 Alles zusammen 307 €
