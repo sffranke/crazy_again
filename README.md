@@ -20,7 +20,7 @@ https://www.ikea.com/de/de/p/ullkaktus-kissen-weiss-90262144/
 Etwa 1/3 der Füllung pro Box.  
 3 €  
   
-Platten:  
+MDF-Platten (Hornbach):  
 Seitenteile: 4 x 1000 x 280 mm²  
 Front- & Rückwände: 4 x 1000 x 148 mm²  
 Decke & Böden: 4 x 148 x 248 mm²  
