@@ -28,12 +28,14 @@ Teiler: 2 x 148 x 248 mm²
 Kreuz: 2 x 148 x 248 mm²  
 30 €
 
-Bassreflexrohre: 17 €
+2xBassreflexrohre: 17 €
 
-Anschlussport: 9 €  
+2xAnschlussport: 9 €  
 Bananenstecker: 8 €  
 Weichen: 85 €  
 
-Alles zusammen 307 €
+Furnier, 3 Bögen 250x32cm: 43 € 
+  
+Alles zusammen 350 €
 
 
