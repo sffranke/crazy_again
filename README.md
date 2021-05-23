@@ -30,12 +30,13 @@ Kreuz: 2 x 148 x 248 mm²
 
 2xBassreflexrohre: 17 €
 
-2xAnschlussport: 9 €  
+2 x Anschlussport: 9 €  
 Bananenstecker: 8 €  
 Weichen: 85 €  
 
 Furnier, 3 Bögen 250x32cm: 43 € 
-  
-Alles zusammen 350 €
+Holzleim: 16 € 
+
+Alles zusammen 370 €
 
 
