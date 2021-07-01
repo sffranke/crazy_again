@@ -37,6 +37,6 @@ Weichen: 85 €
 Furnier, 4 Bögen 250x32cm: 57 €  
 Holzleim: 16 € 
 
-Alles zusammen 370 €
+Alles zusammen 380 €
 
 
