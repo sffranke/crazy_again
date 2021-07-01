@@ -34,7 +34,7 @@ Kreuz: 2 x 148 x 248 mm²
 Bananenstecker: 8 €  
 Weichen: 85 €  
 
-Furnier, 4 Bögen 250x32cm: 43 €  
+Furnier, 4 Bögen 250x32cm: 57 €  
 Holzleim: 16 € 
 
 Alles zusammen 370 €
