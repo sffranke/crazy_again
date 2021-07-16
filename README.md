@@ -1,4 +1,4 @@
-Mein Klon von "Crazy again": http://wwNoppw.donhighend.de/?page_id=5022
+Mein Klon von "Crazy again": http://www.donhighend.de/?page_id=5022
 
 Chassis: 116 € (https://www.digikey.de)  
 
