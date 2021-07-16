@@ -28,7 +28,7 @@ Teiler: 2 x 148 x 248 mm²
 Kreuz: 2 x 148 x 248 mm²  
 30 €
 
-2xBassreflexrohre: 17 €
+2 x Bassreflexrohre: 17 €
 
 2 x Anschlussport: 9 €  
 Bananenstecker: 8 €  
