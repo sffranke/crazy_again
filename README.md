@@ -39,7 +39,9 @@ Holzleim: 16 €
 
 Schrauben 15 €  
 
-Alles zusammen 395 €  
+Dichtungsband 5 €  
+
+Alles zusammen 400 €  
 
 ---
 
