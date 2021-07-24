@@ -45,7 +45,7 @@ Alles zusammen 395 €
 
 Jeder Cent und jeder Tropfen Schweiß hat sich mehr als gelohnt! M-E-G-A   
 
-<img src="crazy.jpeg"  width="300" height="200">
+<img src="crazy.jpeg"  width="400" height=auto>
 
 
 
