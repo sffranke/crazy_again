@@ -39,6 +39,13 @@ Holzleim: 16 €
 
 Schrauben 15 €  
 
-Alles zusammen 395 €
+Alles zusammen 395 €  
+
+---
+
+Jeder Cent und jeder Tropfen Schweiß hat sich mehr als gelohnt! M-E-G-A
+
+<img src="pics/crazy.jpeg"  width="300" height="200">
+
 
 
