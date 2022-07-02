@@ -1,6 +1,8 @@
 Mein Klon von "Crazy again": http://www.donhighend.de/?page_id=5022
 
-Chassis: 116 € (https://www.digikey.de)  
+Chassis: 
+2 Tweeter: 32 € (https://www.digikey.de)  
+4 Woofer: 107 € (https://quint-store.com)
 
 Benötigte Dämmung:
 
@@ -41,7 +43,7 @@ Schrauben 15 €
 
 Dichtungsband 5 €  
 
-Alles zusammen 400 €  
+Alles zusammen 423 €  
 
 ---
 
