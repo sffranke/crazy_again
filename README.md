@@ -49,5 +49,7 @@ Jeder Cent und jeder Tropfen Schweiß haben sich mehr als gelohnt! M-E-G-A
 
 <img src="crazy.jpeg"  width="400" height=auto>
 
+---
 
-
+Passender Verstärker:  
+https://github.com/sffranke/SymAsym
